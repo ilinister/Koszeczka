@@ -1,25 +1,5 @@
 # Koszeczka
 
-change
+10/05/2023
 
-
-ya prosto lublu ego veshi
-on timeless #interesting
-
-
-branch changes version dochulion
-===
-
-хочу смеяться 5 минут
-===
-
-Валера, неси водку! Тут без бутылки не разберёшься...
-> smotryakakojfabrics
-
-*pocs
-*llsdf
-
-::: fsdfsd 
-
--__-
-ANother try lol
+Trying to understand this life. Let's see if that would work.
